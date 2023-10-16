@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @pahlwan
+- 👀 I’m interested in Games & AIs
+- 🌱 I’m currently learning game design
+- 💞️ I’m looking to join research team/project for PhD
+- 📫 Reach me 20-91680-1@student.aiub.edu
